@@ -1,6 +1,6 @@
 - 🥰 Hello there! I'm ZurumaM
 - 💕 I like music--mostly City Pop, K-Pop & J-Pop, Ambient Electronic, and 1980s R&B
-- 🎀 I also love video games, mostly JRPGs!
+- 🎀 I also love video games, especially JRPGs!
 - 📚 Right now my focuses of study are SQL & Swift
 - 🪩 Let's be friends :)
 
